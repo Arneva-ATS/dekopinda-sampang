@@ -1,1 +1,1 @@
-# dekopinda-sampang
+# dekopinda-karanganyar
